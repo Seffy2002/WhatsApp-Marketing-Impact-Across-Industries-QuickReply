@@ -1,2 +1,2 @@
 # WhatsApp Marketing Impact Across Industries | QuickReply
-Conversion uplift data before and after WhatsApp integration.
+Conversion uplift data across industries after adopting WhatsApp marketing tools.
